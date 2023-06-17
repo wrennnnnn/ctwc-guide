@@ -20,11 +20,11 @@ For cheap food nearby the convention center, there’s a couple of options. Ther
 
 ## SHOPPING
 
-Portland had a lot more shopping before the pandemic. Currently, downtown Portland is a bit… different than you may remember it. Nonetheless, there’s still plenty of places in Southeast to check out! If you want to see an electronics store (just like the old days of Radioshack) check out URS Electronics. There’s a Nike and an Adidas store downtown, there’s a sort of Japanese Ikea in the same area, and there’s America’s largest bookstore just a few blocks away!
+Portland had a lot more shopping before the pandemic. Currently, downtown Portland is a bit… different than you may remember it. Nonetheless, there’s still plenty of places in Southeast to check out! There’s a Nike and an Adidas store downtown, there’s a sort of Japanese Ikea in the same area, and there’s America’s largest bookstore just a few blocks away!
 
 ## ACTIVITIES
 
-Portland has no shortage of arcades and pinballs. Most of them will be at the convention, but some major players are not attending this year. The biggest arcade is going to be [Ground Kontrol](https://groundkontrol.com/games/). Alternatively, if you want to check out a museum and have a day free, OMSI is a great place to go. By the time CTWC is happening, the Marvel exhibit there is going to be open, and it’s a great experience. 
+Portland has no shortage of arcades and pinballs. Most of them will be at the convention, but some major players are not attending this year. The biggest arcade is going to be [Ground Kontrol](https://groundkontrol.com/games/). Alternatively, if you want to check out a museum and have a day free, OMSI is a great place to go. By the time CTWC is happening, the Orca exhibit there is going to be open, and it’s a awesome.
 
 ## ADDITIONS
 
