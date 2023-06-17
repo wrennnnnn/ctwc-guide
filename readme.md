@@ -9,6 +9,8 @@ All busses, Streetcar, and MAX support apple pay/google pay debit cards.
 
 If you want to save 1.25 per ride, download the Hop Fastpass app and make a digital card (5.00 single time fee) and say you’re an honored citizen or a youth. 
 
+**You will not be able to take the Max from the airport, as there will be construction going on during CTWC. Please plan to take the replacement shuttle or a taxi. Details [here.](https://trimet.org/alerts/2023/index.htm)
+
 Taxis
 
 Portland has a solid taxi system, which can be useful if you’re going to/from the airport and have lots of luggage. Radio Cab is my personal favorite. It can get a bit spendy (I believe it’s around $50 from the airport to the convention center area), and nobody will care if you get on the Max near the airport. 
