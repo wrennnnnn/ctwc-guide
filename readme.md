@@ -9,7 +9,7 @@ All busses, Streetcar, and MAX support apple pay/google pay debit cards.
 
 If you want to save 1.25 per ride, download the Hop Fastpass app and make a digital card (5.00 single time fee) and say you’re an honored citizen or a youth. 
 
-**You will not be able to take the Max from the airport, as there will be construction going on during CTWC. Please plan to take the replacement shuttle or a taxi. Details [here.](https://trimet.org/alerts/2023/index.htm)
+**You will not be able to take the Max from the airport, as there will be construction going on during CTWC. Please plan to take the replacement shuttle or a taxi. Details [here.](https://trimet.org/alerts/2023/index.htm)**
 
 Taxis
 
